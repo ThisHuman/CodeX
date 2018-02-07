@@ -1,2 +1,3 @@
 # CodeX
-We will win! (most likely not)
+We will win, maybe!
+Huh, Galaxy Books!
