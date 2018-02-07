@@ -1,2 +1,2 @@
 # CodeX
-We will win, maybe!
+We will win! (most likely not)
